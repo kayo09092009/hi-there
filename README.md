@@ -4,7 +4,4 @@
 ☯️atualmente trabalho em mercado
 
 🔯tenho 14 anos
-
-🕉️gosto da noite
-
-![](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExcXg3eHJ4YWxtaWkxejBud290d2RncHU4dGtzY2d6N2o4N3FyZjUxMyZlcD12MV9naWZzX3NlYXJjaCZjdD1n/zbNWaBLUnZMtfJieGp/giphy.gif)
+![](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMGUzNGZqbnNneTh1M2FsdjFwY2VlZzk1dnBjNTJzMmZsdnR1MnUzMSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/CBCRIMmn1rhGnwBRDa/giphy.gif)
