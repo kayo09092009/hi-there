@@ -4,4 +4,5 @@
 ☯️atualmente trabalho em mercado
 
 🔯tenho 14 anos
-![](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMGUzNGZqbnNneTh1M2FsdjFwY2VlZzk1dnBjNTJzMmZsdnR1MnUzMSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/CBCRIMmn1rhGnwBRDa/giphy.gif)
+
+![](https://media.giphy.com/media/hbV7tnpPyQNgh8geqC/giphy.gif?cid=790b7611fpyo3osaltwc0c108u66pl3iynjyel91rkry82f3&ep=v1_gifs_search&rid=giphy.gif&ct=g)
